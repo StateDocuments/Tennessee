@@ -1,5 +1,1 @@
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Tennessee/blob/master/camera1_l.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Tennessee/blob/master/queenanne.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Tennessee/blob/master/roofcam2ne500x281.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Tennessee/blob/master/seatac.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Tennessee/blob/master/waterfront.jpg)
+
